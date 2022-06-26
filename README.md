@@ -1,2 +1,2 @@
-Meus trabalhos da faculdade [aqui ó](github.com/Trabalhos-Thales) 👍
+Meus trabalhos da faculdade [aqui ó](https://github.com/Trabalhos-Thales) 👍
 
